@@ -30,7 +30,7 @@
 
 8. 让我们一起创造一个温暖、互助的技术社区，期待每一位成员的积极参与！😊
 
-![20250304083844](https://raw.githubusercontent.com/xun082/md/main/blogs.images20250304083844.png)
+![20250304083844](https://ik.imagekit.io/moment/6991741048708_.pic.jpg?updatedAt=1741050341987)
 
 > 如果加群失败，请添加维护者微信 `yunmz777`，添加请备明来意。
 
